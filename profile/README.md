@@ -1,0 +1,1 @@
+![banner](https://cdn.discordapp.com/attachments/1483205440501452882/1514759645129084978/banner-glanda.png?ex=6a2c895a&is=6a2b37da&hm=6dd654e7871ab635a3a57298c8b67ce48aec66917195e02b29f39f3831c3c3a1&)
