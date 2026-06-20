@@ -1,1 +1,1 @@
-![banner](https://cdn.discordapp.com/attachments/1483205440501452882/1515523455544725584/banner.png?ex=6a334534&is=6a31f3b4&hm=2ae6b7287b4fd1361190c1cafd3f3b9494164bf1014dcbe186a57d391589032f&)
+![banner](https://postimg.cc/Jtv7LdG5)
